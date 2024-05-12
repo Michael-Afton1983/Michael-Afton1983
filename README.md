@@ -4,7 +4,7 @@
 
 
 
-- ***Mike / 16 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp***
+- ***Mike / 16 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / proshipper***
 
 <br>
 <br>
@@ -55,7 +55,7 @@
 
 ## Extra Info:
 
-I'm proship/anti-anti/pro-fiction, i ship problematic things (EX: William x Michael Afton, Andy x Ashley Graves, Molly x Edd Walten). 
+I ship a lot of problematic things like William x Michael Afton, Andy x Ashley Graves, Molly x Edd Walten 
 <br> 
 <br>
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
