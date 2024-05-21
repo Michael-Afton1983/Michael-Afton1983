@@ -47,6 +47,10 @@
 -The Garten Of Banban
 <br>
 -*Minecraft: Story Mode*
+<br>
+-*Hazbin Hotel*
+<br>
+-*Helluva Boss*
 
 <br>
 <br>
@@ -113,6 +117,43 @@
 <br>
 <br>
 -Felix Kranken x Edd Walten x Molly Walten
+<br>
+<br>
+<br>
+**Hazbin Hotel**
+
+-*Charlie x Vaggie*
+<br>
+<br>
+-Charlie x Emily
+<br>
+<br>
+-Charlie x Adam
+<br>
+<br>
+-*Charlie x Lucifer*
+<br>
+<br>
+-Alastor x Vox
+<br>
+<br>
+<br>
+**Random media:**
+
+-*Dib Membrane x Zim* (Invader Zim)
+<br>
+<br>
+-Jesse x Lukas (Minecraft: Story Mode)
+<br>
+<br>
+-*Stolas x Blitz* (Helluva Boss)
+<br>
+<br>
+-*Izuku Midoriya x All Might* (My Hero Academia)
+<br>
+<br>
+-Pim Pimling x Charlie Dompler (Smiling Friends)
+<br>
 <br>
 <br>
 <br>
