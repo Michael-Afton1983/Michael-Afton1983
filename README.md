@@ -55,11 +55,74 @@
 
 <br>
 
+## My ships!!
+
+<sub>*Italized are favorites*</sub>
+
+**Fnaf:**
+
+-*William Afton x Michael Afton*
+<br>
+<br>
+-Michael Afton x Elizabeth Afton
+<br>
+<br>
+-William Afton x Charlie Emily (Games + *The Silver Eyes*)
+<br>
+<br>
+-William Afton x Henry Emily
+<br>
+<br>
+-*Michael Afton x Henry Emily*
+<br>
+<br>
+-*Steve Raglan x Michael Schmidt*
+<br>
+<br>
+-Steve Raglan x Vanessa Shelly
+<br>
+<br>
+<br>
+**Undertale:**
+
+-Frisk x Sans
+<br>
+<br>
+-*Frisk x Chara*
+<br>
+<br>
+-*Chara x Asriel*
+<br>
+<br>
+-Sans x Papyrus
+<br>
+<br>
+-*Frisk x Gaster*
+<br>
+<br>
+<br>
+**The Walten Files:**
+
+-*Edd Walten x Molly Walten*
+<br>
+<br>
+-Jack Walten x Felix Kranken
+<br>
+<br>
+-*Jack Walten x Rosemary Walten x Felix Kranken*
+<br>
+<br>
+-Felix Kranken x Edd Walten x Molly Walten
+<br>
+<br>
+<br>
+
+<sub>*(More is to be added)*</sub>
+
+
+
 ## Extra Info:
 
-I ship a lot of problematic things like William x Michael Afton, Andy x Ashley Graves, Molly x Edd Walten 
-<br> 
-<br>
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
 <br> 
 <br>
