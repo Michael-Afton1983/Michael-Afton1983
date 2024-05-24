@@ -173,4 +173,6 @@ I have 0 clue on how to interact with people, so my apologies if I come off as a
 <br> 
 <br>
 And please keep in mind that I'm 16, so don't be weird.
-
+<br>
+<br>
+![](https://komarev.com/ghpvc/?Michael-Afton1983&color=992AFF)
