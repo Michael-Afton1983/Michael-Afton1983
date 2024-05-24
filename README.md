@@ -173,6 +173,4 @@ I have 0 clue on how to interact with people, so my apologies if I come off as a
 <br> 
 <br>
 And please keep in mind that I'm 16, so don't be weird.
-<br>
-<br>
-MissSkunky/Gibi is my sister, that is how we know each other/hang out with each others [(her page)](https://github.com/MissSkunky)
+
