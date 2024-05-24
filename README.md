@@ -11,6 +11,8 @@
 <br>
 <br>
 
+![](https://komarev.com/ghpvc/?username=Michael-Afton1983&color=992AFF)
+
 ![image](https://github.com/Michael-Afton1983/Michael-Afton1983/assets/169415631/e27498fe-7f3c-4101-a1ba-cb089f45d46e)
 
 ## **Interests**
@@ -173,6 +175,5 @@ I have 0 clue on how to interact with people, so my apologies if I come off as a
 <br> 
 <br>
 And please keep in mind that I'm 16, so don't be weird.
-<br>
-<br>
-![](https://komarev.com/ghpvc/?Michael-Afton1983&color=992AFF)
+
+
