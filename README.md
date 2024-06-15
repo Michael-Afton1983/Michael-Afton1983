@@ -56,6 +56,8 @@
 -*Helluva Boss*
 <br>
 -*IMSCARED*
+<br>
+-Miraculous Ladybug
 
 <br>
 <br>
@@ -161,6 +163,9 @@
 <br>
 <br>
 -Pim Pimling x Charlie Dompler (Smiling Friends)
+<br>
+<br>
+-Marinette Dupain-Cheng/Gabriel Agreste (Miraculous Ladybug)
 <br>
 <br>
 <br>
