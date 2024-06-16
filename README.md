@@ -165,7 +165,7 @@
 -Pim Pimling x Charlie Dompler (Smiling Friends)
 <br>
 <br>
--Marinette Dupain-Cheng/Gabriel Agreste (Miraculous Ladybug)
+-Marinette Dupain-Cheng x Gabriel Agreste (Miraculous Ladybug)
 <br>
 <br>
 -*Pomni x Ragatha* (The Amazing Digital Circus)
