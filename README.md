@@ -58,6 +58,9 @@
 -*IMSCARED*
 <br>
 -Miraculous Ladybug
+<br>
+Steven Universe
+<br>
 
 <br>
 <br>
@@ -112,6 +115,24 @@
 <br>
 <br>
 -*Frisk x Gaster*
+<br>
+<br>
+<br>
+**My Little Pony**
+
+-*Twilight Sparkle x Sunset Shimmer*
+<br>
+<br>
+-*Applejack x Rarity*
+<br>
+<br>
+-Adagio Dazzle x Aria Blaze x Sonata Dusk
+<br>
+<br>
+-Adagio Dazzle x Sunset Shimmer
+<br>
+<br>
+-Twilight Sparkle x King Sombra
 <br>
 <br>
 <br>
@@ -171,6 +192,10 @@
 -*Pomni x Ragatha* (The Amazing Digital Circus)
 <br>
 <br>
+Steven Universe x Spinel (Steven Universe)
+
+<br>
+<br>
 <br>
 <br>
 
@@ -183,6 +208,9 @@
 
 ## Extra Info:
 
+No dni because that is useless, I literally will block ppl
+<br>
+<br>
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
 <br> 
 <br>
