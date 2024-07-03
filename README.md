@@ -192,7 +192,10 @@ Steven Universe
 -*Pomni x Ragatha* (The Amazing Digital Circus)
 <br>
 <br>
-Steven Universe x Spinel (Steven Universe)
+-Steven Universe x Spinel (Steven Universe)
+<br>
+<br>
+-*Stan Marsh x Kyle Broflovski* (South Park)
 
 <br>
 <br>
