@@ -59,7 +59,9 @@
 <br>
 -Miraculous Ladybug
 <br>
-Steven Universe
+-Steven Universe
+<br>
+-Kingdom Hearts (Especially *Birth By Sleep*)
 <br>
 
 <br>
@@ -166,6 +168,42 @@ Steven Universe
 <br>
 <br>
 -Alastor x Vox
+<br>
+<br>
+<br>
+**Kingdom Hearts**
+
+-*Riku x Ansem Seeker Of Darkness*
+<br>
+<br>
+-*Aqua x Terra*
+<br>
+<br>
+-*Aqua x Ventus*
+<br>
+<br>
+-*Terra x Ventus*
+<br>
+<br>
+-*Aqua x Terra x Ventus*
+<br>
+<br>
+-Sora x Riku
+<br>
+<br>
+-Sora x Kairi
+<br>
+<br>
+-Sora x Riku x Kairi
+<br>
+<br>
+-*Axel x Roxas*
+<br>
+<br>
+-Ventus x Vanitas
+<br>
+<br>
+-~~Sora x Ventus x Roxas x Vanitas~~
 <br>
 <br>
 <br>
