@@ -8,15 +8,12 @@
 <br>/ [MissSkunky](https://github.com/MissSkunky) is my sister***
 
 <br>
-<br>
-<br>
-<br>
 
 ![](https://komarev.com/ghpvc/?username=Michael-Afton1983&color=992AFF)
 
 <br>
 
-(warning: problematic ships be upon ye. scroll away if you are uncomfortable or like -13)
+<sub>*(warning: problematic ships be upon ye. scroll away if you are uncomfortable or like -13)*</sub>
 
 ![image](https://github.com/Michael-Afton1983/Michael-Afton1983/assets/169415631/e27498fe-7f3c-4101-a1ba-cb089f45d46e)
 
