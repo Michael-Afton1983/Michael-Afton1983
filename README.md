@@ -64,6 +64,8 @@
 <br>
 -Kingdom Hearts (Especially *Birth By Sleep*)
 <br>
+-The Coffin Of Andy And LeyLey
+<br>
 
 <br>
 <br>
@@ -235,6 +237,9 @@
 <br>
 <br>
 -*Stan Marsh x Kyle Broflovski* (South Park)
+<br>
+<br>
+-Andrew Graves x Ashley Graves (The Coffin Of Andy And Leyley)
 
 <br>
 <br>
