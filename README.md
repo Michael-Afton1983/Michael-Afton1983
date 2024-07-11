@@ -66,6 +66,8 @@
 <br>
 -The Coffin Of Andy And LeyLey
 <br>
+-Persona (4: Golden, 5, Royal, Strikers)
+<br>
 
 <br>
 <br>
@@ -207,6 +209,21 @@
 <br>
 <br>
 -~~Sora x Ventus x Roxas x Vanitas~~
+<br>
+<br>
+<br>
+**Persona**
+
+-*Yu Narukami x Tohru Adachi*
+<br>
+<br>
+-Yu Narukami x Yosuke Hanamura
+<br>
+<br>
+-*Akira Kurusu x Ryuji Sakamoto*
+<br>
+<br>
+-*Akira Kurusu x Sae Niijima*
 <br>
 <br>
 <br>
