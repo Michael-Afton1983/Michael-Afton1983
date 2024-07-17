@@ -282,5 +282,10 @@ I have 0 clue on how to interact with people, so my apologies if I come off as a
 <br> 
 <br>
 And please keep in mind that I'm 16, so don't be weird.
+<br> 
+<br>
+if the pencil and paper emoji combo is in my name, i am writing. if its a controller and computer combo, i'm playing a game. if its a paint and pallete combo, I'm drawing :3
+<br> 
+<br>
 
 
