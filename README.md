@@ -91,10 +91,7 @@
 -William Afton x Charlie Emily (Games + *The Silver Eyes*)
 <br>
 <br>
--William Afton x Henry Emily
-<br>
-<br>
--*Michael Afton x Henry Emily*
+-*William Afton x Henry Emily*
 <br>
 <br>
 -*Steve Raglan x Michael Schmidt*
