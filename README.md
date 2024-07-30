@@ -262,6 +262,11 @@
 <br>
 <br>
 -~~Her x ME (IMSCARED) (this is a joke lmao)~~
+<br>
+<br>
+-Dante x Vergil (Devil May Cry)
+<br>
+<br>
 
 <br>
 <br>
