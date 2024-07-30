@@ -20,7 +20,7 @@
 
 <sub>*(warning: problematic ships be upon ye. scroll away if you are uncomfortable)*</sub>
 
-### Leave if you are under than 13, no ifs or buts
+### Leave if you are under 13, no ifs or buts
 
 ![image](https://github.com/Michael-Afton1983/Michael-Afton1983/assets/169415631/e27498fe-7f3c-4101-a1ba-cb089f45d46e)
 
