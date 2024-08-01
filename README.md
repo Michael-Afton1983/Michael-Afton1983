@@ -293,6 +293,8 @@ I have 0 clue on how to interact with people, so my apologies if I come off as a
 And please keep in mind that I'm 16, so don't be weird.
 <br> 
 <br>
-
+i am not a Michael Afton sys or irl!!!! If I ever say i am him, I am joking! Yes, I project heavily onto him, but I do not actually see myself as him in real life.
+<br> 
+<br>
 
 
