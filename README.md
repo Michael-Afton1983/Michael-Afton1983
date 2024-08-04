@@ -269,6 +269,9 @@
 -Dante x Vergil (Devil May Cry)
 <br>
 <br>
+-*Dean x Sam Winchester* (Supernatural) ~~(the priest uniforms im sorry)~~
+<br>
+<br>
 
 <br>
 <br>
