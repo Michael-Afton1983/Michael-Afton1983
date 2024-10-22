@@ -92,6 +92,9 @@
 -*William Afton x Michael Afton*
 <br>
 <br>
+-*Michael Afton x Vincent Bishop* ~~(i swear i will make a full explaination for this to explain the dynamic and why I'm obsessed with it)~~
+<br>
+<br>
 -Michael Afton x Elizabeth Afton
 <br>
 <br>
