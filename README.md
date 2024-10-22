@@ -300,7 +300,7 @@ And please keep in mind that I'm 16, so don't be weird.
 <br> 
 <br>
 ~~i am not a Michael Afton sys or irl!!!! If I ever say i am him, I am joking! Yes, I project heavily onto him, but I do not actually see myself as him in real life.~~ <br>
-actually you know what, i AM Michael Afton, and antis reading this, please leave this page <3 i don't have to explain ANYTHING to you
+actually you know what, i AM Michael Afton, and for the antis reading this, please leave this page <3 i don't have to explain ANYTHING to you
 <br> 
 <br>
 
