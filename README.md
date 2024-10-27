@@ -269,6 +269,9 @@
 -~~Her x ME (IMSCARED) (this is a joke lmao)~~
 <br>
 <br>
+-Jimmy (Mouthwashing) x ME ~~(Not a joke im fr)~~
+<br>
+<br>
 -Dante x Vergil (Devil May Cry)
 <br>
 <br>
