@@ -4,7 +4,7 @@
 
 
 
-- ***Mike / 16 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper
+- ***Mike / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper
 <br>/ [MissSkunky](https://github.com/MissSkunky) is my sister [ALSO PLEASE TAKE A LOOK AT HER PROSHIP CARRD, SHE PUT A LOT OF WORK INTO IT](https://proshipresourcesfnaf.carrd.co/) / (Also click [here](https://bubblegumsweetcommissions.straw.page/) for commission info!!)***
 
 <br>
@@ -301,7 +301,7 @@ No dni because that is useless, I literally will block ppl
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
 <br> 
 <br>
-And please keep in mind that I'm 16, so don't be weird.
+And please keep in mind that I'm 17, so don't be weird.
 <br> 
 <br>
 ~~i am not a Michael Afton sys or irl!!!! If I ever say i am him, I am joking! Yes, I project heavily onto him, but I do not actually see myself as him in real life.~~ <br>
