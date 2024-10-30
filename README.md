@@ -271,7 +271,10 @@
 -~~Her x ME (IMSCARED) (this is a joke lmao)~~
 <br>
 <br>
--Jimmy (Mouthwashing) x ME ~~(Not a joke im fr)~~
+-*Jimmy (Mouthwashing) x ME* ~~(Not a joke im fr)~~
+<br>
+<br>
+-Jimmy x Captain Curly (Mouthwashing)
 <br>
 <br>
 -Dante x Vergil (Devil May Cry)
