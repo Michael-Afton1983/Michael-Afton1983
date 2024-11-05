@@ -274,7 +274,7 @@
 -*Jimmy (Mouthwashing) x ME* ~~(Not a joke im fr)~~
 <br>
 <br>
--Jimmy x Captain Curly (Mouthwashing)
+-*Jimmy x Captain Curly (Mouthwashing)*
 <br>
 <br>
 -Dante x Vergil (Devil May Cry)
