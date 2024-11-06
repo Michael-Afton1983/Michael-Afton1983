@@ -18,7 +18,7 @@
 
 <br>
 
-<sub>*(warning: problematic ships be upon ye. scroll away if you are uncomfortable)*</sub>
+## ${\textsf{\color{red}warning: problematic ships be upon ye. scroll away if you are uncomfortable}}$
 
 ### Leave if you are under 13, no ifs or buts
 
