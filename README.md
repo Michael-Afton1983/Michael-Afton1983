@@ -5,8 +5,7 @@
 
 
 - ***Mike / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper
-<br>/ [MissSkunky](https://github.com/MissSkunky) is my sister [ALSO PLEASE TAKE A LOOK AT HER PROSHIP CARRD, SHE PUT A LOT OF WORK INTO IT](https://proshipresourcesfnaf.carrd.co/) / (Also click [here](https://bubblegumsweetcommissions.straw.page/) for commission info!!)***
-
+<br>/ [MissSkunky](https://github.com/MissSkunky) is my sister [ALSO PLEASE TAKE A LOOK AT HER PROSHIP CARRD, SHE PUT A LOT OF WORK INTO IT](https://proshipresourcesfnaf.carrd.co/)
 <br>
 
 ![](https://komarev.com/ghpvc/?username=Michael-Afton1983&color=992AFF)
