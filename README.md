@@ -311,5 +311,8 @@ And please keep in mind that I'm 17, so don't be weird.
 actually you know what, i AM Michael Afton, and for the antis reading this, please leave this page <3 i don't have to explain ANYTHING to you
 <br> 
 <br>
+and if you've read this far down, have a fantastical day <3 please treat yourself and take care LD
+<br>
+<br>
 
 
