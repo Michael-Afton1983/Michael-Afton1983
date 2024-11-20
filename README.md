@@ -97,9 +97,6 @@
 -*Michael Afton x Vincent Bishop* ~~(i swear i will make a full explaination for this to explain the dynamic and why I'm obsessed with it)~~
 <br>
 <br>
--Michael Afton x Elizabeth Afton
-<br>
-<br>
 -William Afton x Charlie Emily (Games + *The Silver Eyes*)
 <br>
 <br>
@@ -113,6 +110,9 @@
 <br>
 <br>
 -Michael Schmidt x Vanessa Shelly
+<br>
+<br>
+-Michael Schmidt x Vanessa Shelly x Steve Raglan
 <br>
 <br>
 <br>
