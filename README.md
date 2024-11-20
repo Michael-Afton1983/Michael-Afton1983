@@ -244,7 +244,7 @@
 -Jesse x Lukas (Minecraft: Story Mode)
 <br>
 <br>
--Banban x Stinger Flynn (Garten Of BanBan)
+-*Banban x Stinger Flynn* (Garten Of BanBan)
 <br>
 <br>
 -*Stolas x Blitz* (Helluva Boss)
