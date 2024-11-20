@@ -55,7 +55,7 @@
 <br>
 -The Amazing Digital Circus
 <br>
--The Garten Of Banban
+-Garten Of BanBan
 <br>
 -*Minecraft: Story Mode*
 <br>
@@ -242,6 +242,9 @@
 <br>
 <br>
 -Jesse x Lukas (Minecraft: Story Mode)
+<br>
+<br>
+-Banban x Stinger Flynn (Garten Of BanBan)
 <br>
 <br>
 -*Stolas x Blitz* (Helluva Boss)
