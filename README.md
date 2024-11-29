@@ -27,7 +27,7 @@
 ## **Interests**
 <sub>*Italized are hyperfixations/favorites*</sub>
 
--*FNaF* (*Games*, *Silver Eyes Trilogy*, The Movie, *Fan Songs*)
+-*FNaF* (*Games*, *Silver Eyes Trilogy*, The Movie, *Fan Songs*, *TSAMS, LAES & EAPS*)
 <br>
 -*Undertale*
 <br>
@@ -113,6 +113,9 @@
 <br>
 <br>
 -Michael Schmidt x Vanessa Shelly x Steve Raglan
+<br>
+<br>
+-Solar x Nexus
 <br>
 <br>
 <br>
