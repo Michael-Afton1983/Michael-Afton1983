@@ -1,6 +1,11 @@
 <div align="center">
 
-# [!!! COLOR MY TREE !!!](https://colormytree.me/2024/01JE7D0VMH854FAR79RXRQVGN0)
+# ${\textsf{\color{red}Leave if you are under 15, no ifs or buts.}}$
+</p>
+
+<div align="center">
+
+## [!!! COLOR MY TREE !!!](https://colormytree.me/2024/01JE7D0VMH854FAR79RXRQVGN0)
 </div>
 
 <p align="center" width="100%">
@@ -24,8 +29,6 @@
 <br>
 
 ## ${\textsf{\color{red}warning: problematic ships be upon ye. scroll away if you are uncomfortable}}$
-
-### Leave if you are under 15, no ifs or buts
 
 ![image](https://github.com/Michael-Afton1983/Michael-Afton1983/assets/169415631/e27498fe-7f3c-4101-a1ba-cb089f45d46e)
 
