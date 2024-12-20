@@ -111,6 +111,9 @@
 -*William Afton x Henry Emily*
 <br>
 <br>
+-Gregory x Vanessa/Vanny (sorry gang, its gotten to me <3)
+<br>
+<br>
 -*Steve Raglan x Michael Schmidt*
 <br>
 <br>
