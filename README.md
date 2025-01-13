@@ -106,6 +106,9 @@
 -*William Afton x Henry Emily*
 <br>
 <br>
+-*Michael Afton x Henry Emily* (I'm extremely picky with this one, and i will get extremely uncomfortable, however I keep coming back to them </3)
+<br>
+<br>
 -Gregory x Vanessa/Vanny (sorry gang, its gotten to me <3)
 <br>
 <br>
