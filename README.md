@@ -320,13 +320,17 @@ No dni because that is useless, I literally will block ppl
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
 <br> 
 <br>
-And please keep in mind that I'm 17, so don't be weird.
+And please keep in mind that I'm 17, so don't be weird. Also like, don't flirt with me. ever. Had really bad experiences and I'm taken, sorry ladies.
 <br> 
 <br>
 ~~i am not a Michael Afton sys or irl!!!! If I ever say i am him, I am joking! Yes, I project heavily onto him, but I do not actually see myself as him in real life.~~ <br>
 actually you know what, i AM Michael Afton, and for the antis reading this, please leave this page <3 i don't have to explain ANYTHING to you
 <br> 
 <br>
+My favorite FNAF game is Sister Location <3
+<br>
+<br>
+My first "problematic" ship was Frans from Undertale, it's what got me into writing fics
 and if you've read this far down, have a fantastical day <3 please treat yourself and take care :D
 <br>
 <br>
