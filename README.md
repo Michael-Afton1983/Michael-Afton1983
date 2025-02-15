@@ -9,7 +9,7 @@
 
 
 
-- ***Judas / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper AND FlanBan shipper
+- ***Judas/Mike / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper AND FlanBan shipper
 <br>/ [MissSkunky](https://github.com/MissSkunky) is my sister [ALSO PLEASE TAKE A LOOK AT HER PROSHIP CARRD, SHE PUT A LOT OF WORK INTO IT](https://proshipresourcesfnaf.carrd.co/) / My [Rentry!! :D](https://rentry.co/MikeyAfton1983) / [Commission Info!!](https://bubblegumsweetcommissions.straw.page/) / My [Pronouns Page](https://en.pronouns.page/@MikeyAfton) / My [Last.FM](https://www.last.fm/user/Michael-Afton)***
 
 <br>
