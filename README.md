@@ -9,10 +9,12 @@
 
 
 
-- ***Mike / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper
+- ***Judas / 17 / Chronically annoying / Theatre Kid / Weeb / Biggest FNaF fan / William Afton simp / Proshipper / #1 WillMike shipper AND FlanBan shipper
 <br>/ [MissSkunky](https://github.com/MissSkunky) is my sister [ALSO PLEASE TAKE A LOOK AT HER PROSHIP CARRD, SHE PUT A LOT OF WORK INTO IT](https://proshipresourcesfnaf.carrd.co/) / My [Rentry!! :D](https://rentry.co/MikeyAfton1983) / [Commission Info!!](https://bubblegumsweetcommissions.straw.page/) / My [Pronouns Page](https://en.pronouns.page/@MikeyAfton) / My [Last.FM](https://www.last.fm/user/Michael-Afton)***
 
 <br>
+
+<sub>${\textsf{\color{purple}btw if you want me to respond to smth quickly, please go to my guestbook or OWOT}}$ :pray:</sub>
 
 ![](https://komarev.com/ghpvc/?username=Michael-Afton1983&color=992AFF)
 
@@ -22,7 +24,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v4pomd2yvsm0j1e0nxvc4pxkt&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=b03fc0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <br>
-
+    
 ## ${\textsf{\color{red}warning: problematic ships be upon ye. scroll away if you are uncomfortable}}$
 
 ![image](https://github.com/Michael-Afton1983/Michael-Afton1983/assets/169415631/e27498fe-7f3c-4101-a1ba-cb089f45d46e)
@@ -257,6 +259,9 @@
 <br>
 <br>
 -*Banban x Stinger Flynn* (Garten Of BanBan)
+<br>
+<br>
+-Bittergiggle x Sheriff Toadster (Garten Of BanBan)
 <br>
 <br>
 -*Stolas x Blitz* (Helluva Boss)
