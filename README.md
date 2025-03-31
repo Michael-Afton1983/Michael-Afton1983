@@ -1,6 +1,6 @@
 <div align="center">
 
-# ${\textsf{\color{red}Leave if you are under 15, no ifs or buts.}}$
+# ${\textsf{\color{red}Leave if you are under 17, no ifs or buts.}}$
 </p>
 
 <p align="center" width="100%">
