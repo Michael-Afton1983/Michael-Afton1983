@@ -325,7 +325,7 @@ No dni because that is useless, I literally will block ppl
 I have 0 clue on how to interact with people, so my apologies if I come off as awkward
 <br> 
 <br>
-And please keep in mind that I'm 17, so don't be weird. Also like, don't flirt with me. ever. Had really bad experiences and I'm taken, sorry ladies.
+And please keep in mind that I'm 17, so don't be weird. Also like, don't flirt with me. ever. I've had bad experiences and I am not into dating rn, sorry ladies.
 <br> 
 <br>
 ~~i am not a Michael Afton sys or irl!!!! If I ever say i am him, I am joking! Yes, I project heavily onto him, but I do not actually see myself as him in real life.~~ <br>
