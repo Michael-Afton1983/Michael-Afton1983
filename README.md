@@ -1,6 +1,6 @@
 <div align="center">
 
-# Leave if you are under 17, no ifs or buts.
+# ${\textsf{\color{red}Leave if you are under 17, no ifs or buts.}}$
 </p>
 
 <p align="center" width="100%">
@@ -14,7 +14,7 @@
 
 <br>
 
-<sub>btw if you want me to respond to smth quickly, please go to my guestbook or OWOT :pray:</sub>
+<sub>${\textsf{\color{purple}btw if you want me to respond to smth quickly, please go to my guestbook or OWOT}}$ :pray:</sub>
 
 ![](https://komarev.com/ghpvc/?username=Michael-Afton1983&color=992AFF)
 
