@@ -111,6 +111,9 @@
 -*Michael Afton x Henry Emily* (I'm extremely picky with this one, and i will get extremely uncomfortable, however I keep coming back to them </3)
 <br>
 <br>
+-*Michael Afton x Jeremy Fitzgerald*
+<br>
+<br>
 -Gregory x Vanessa/Vanny (sorry gang, its gotten to me <3)
 <br>
 <br>
@@ -250,6 +253,24 @@
 <br>
 <br>
 <br>
+**Mouthwashing**
+
+-**Jimmy x Curly**
+<br>
+<br>
+-**Jimmy x Daisuke**
+<br>
+<br>
+-**Jimmy x ME** (not a joke, sorry <3<3)
+<br>
+<br>
+-Curly x Daisuke
+<br>
+<br>
+-*Jimmy x Curly x Daisuke*
+<br>
+<br>
+<br>
 **Random media:**
 
 -*Dib Membrane x Zim* (Invader Zim)
@@ -291,12 +312,6 @@
 -~~Her x ME (IMSCARED) (this is a joke lmao)~~
 <br>
 <br>
--*Jimmy (Mouthwashing) x ME* ~~(Not a joke im fr)~~
-<br>
-<br>
--*Jimmy x Captain Curly (Mouthwashing)*
-<br>
-<br>
 -Dante x Vergil (Devil May Cry)
 <br>
 <br>
@@ -304,6 +319,12 @@
 <br>
 <br>
 -Crowley x Kevin Tran (Supernatural)
+<br>
+<br>
+-Steve x Garrett (A Minecraft Movie)
+<br>
+<br>
+
 
 <br>
 <br>
