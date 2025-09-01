@@ -2,9 +2,12 @@
 
 
 # ${\textsf{\color{#8c0007}🚫17+, Children leave.🚫}}$
+</div>
 
-
-
+> [!CAUTION]
+> This doesn't work on mobile for some reason!! idk what went wrong with the spacing
+ 
+<div align="center">
 <h2> ${\textsf{\color{#FFECB6} ⋅⋆ ☆ ⋆ Info ⋆ ☆ ⋆⋅ }}$</h2>
 
 <i>${\color{#3e8535}"Hey \space hey, \space glad \space you \space came \space back \space for \space another \space night!"}$</i>
@@ -62,7 +65,7 @@ ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. 
 
 <h2> ${\textsf{\color{#ed3b7d} ⋅⋆ ☆ ⋆ Ships ⋆ ☆ ⋆⋅ }}$</h2>
 
-<strong>${\color{#F672C1}William \space Afton \space x \space Michael \space Afton}$</strong>
+${\color{#F672C1}William \space Afton \space x \space Michael \space Afton}$
 <br>
 <i>${\color{#F672C1}Vincent \space Bishop \space x \space Michael \space Afton}$</i>
 <br>
@@ -77,14 +80,90 @@ ${\color{#F672C1}Vanessa \space x \space Cassie}$
 <br>
 <br>
 
-<i>${\color{#F672C1}Sans \space x \space Frisk}$</i>
+${\color{#F672C1}Sans \space x \space Frisk}$</i>
 <br>
-<i>${\color{#F672C1}W.D. \space Gaster \space x \space Frisk}$</i>
+${\color{#F672C1}W.D. \space Gaster \space x \space Frisk}$
 <br>
-<i>${\color{#F672C1}Chara \space x \space Asriel}$</i>
+${\color{#F672C1}Chara \space x \space Asriel}$
 <br>
 ${\color{#F672C1}Chara \space x \space Frisk}$
 <br>
+${\color{#F672C1}Alphys \space x \space Undyne}$
+<br>
+${\color{#F672C1}Alphys \space x \space Sans}$
+
+<br>
+<br>
+
+
+${\color{#F672C1}Riku \space x \space Ansem \space Seeker \space Of \space Darkness}$
+<br>
+${\color{#F672C1}Terra \space x \space Ventus}$
+<br>
+${\color{#F672C1}Aqua \space x \space Terra \space x \space Ventus}$
+<br>
+${\color{#F672C1}Aqua \space x \space Terra}$
+<br>
+${\color{#F672C1}Aqua \space x \space Ventus}$
+<br>
+${\color{#F672C1}Axel \space x \space Roxas}$
+<br>
+${\color{#F672C1}Sora \space x \space Riku}$
+<br>
+${\color{#F672C1}Sora \space x \space Kairi}$
+<br>
+${\color{#F672C1}Sora \space x \space Riku \space x \space Kairi}$
+<br>
+${\color{#F672C1}Ventus \space x \space Vanitas}$
+<br>
+${\color{#F672C1}Sora \space x \space Ventus \space x \space Roxas \space x \space Vanitas}$
+
+<br>
+<br>
+
+${\color{#F672C1}Yu \space Narukami \space x \space Tohru Adachi}$
+<br>
+${\color{#F672C1}Yu \space Narukami \space x \space Ryotaro \space Dojima}$
+<br>
+${\color{#F672C1}Yu \space Narukami \space x \space Yosuke \space Hanamura}$
+<br>
+${\color{#F672C1}Yosuke \space Hanamura \space x \space Ryotaro \space Dojima}$
+<br>
+${\color{#F672C1}Akira \space Kurusu \space x \space Takuto \space Maruki}$
+<br>
+${\color{#F672C1}Akira \space Kurusu \space x \space Sae \space Nijima}$
+<br>
+${\color{#F672C1}Akira \space Kurusu \space x \space Ryuji \space Sakamoto}$
+
+<br>
+<br>
+
+${\color{#F672C1}Edward \space Walten \space x \space Molly \space Walten}$
+<br>
+${\color{#F672C1}Jack \space Walten \space x \space Felix \space Kranken}$
+<br>
+${\color{#F672C1}Jack \space Walten \space x \space Rosemary \space Walten \space x \space Felix \space Kranken}$
+<br>
+${\color{#F672C1}Felix \space Kranken \space x \space Edward \space Walten \space x \space Molly \space Walten}$
+
+<br>
+<br>
+
+${\color{#F672C1}Princess \space Celestia \space x \space Twilight \space Sparkle}$
+<br>
+${\color{#F672C1}Sunset \space Shimmer \space x \space Twilight \space Sparkle}$
+<br>
+${\color{#F672C1}King \space Sombra \space x \space Twilight \space Sparkle}$
+<br>
+${\color{#F672C1}Adagio \space Dazzle \space x \space Sunset \space Shimmer}$
+<br>
+${\color{#F672C1}Adagio \space Dazzle \space x \space Aria \space Blaze \space x \space Sonata \space Dusk}$
+<br>
+${\color{#F672C1}Applejack \space x \space Rarity}$
+
+<br>
+<br>
+
 
 <sub>${\color{#B4B4B4}(still \space updating!!)}$</sub>
 
