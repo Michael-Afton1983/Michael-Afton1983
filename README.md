@@ -21,7 +21,8 @@ ${\textsf{\color{#7855cf}Hello!!! Please call me Judas, or Michael!}}$
 ${\textsf{\color{#7855cf}I am 17, I do not have a DNI, I really don't mind anyone interacting, just as long as you're nice!!}}$
 <br>
 <br>
-${\textsf{\color{#7855cf}My biggest interest. ever. has been FNaF, I kin Michael Afton, and I ship him with William.}}$
+${\textsf{\color{#7855cf}My biggest interest. ever. has been FNaF, I kin Michael Afton HEAVILY (i don't have doubles dni per se,}}$
+${\textsf{\color{#7855cf}but i will sometimes block depending on my mood), and I ship him with William.}}$
 <br>
 <br>
 ${\textsf{\color{#7855cf}FEEL FREE TO MATCH PONIES W/ ME AT ANYTIME I LOVE DOING THAT SM JLGSSGL}}$
