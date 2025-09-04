@@ -49,8 +49,6 @@ ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. 
 
 <h2> ${\textsf{\color{#3bccaf} ⋅⋆ ☆ ⋆ Links ⋆ ☆ ⋆⋅ }}$</h2>
 
-[MY SISTER PLEASE GO CHECK HER OUT!!!](https://github.com/MissSkunky)
-<br>
 [SKUNKY'S PROSHIP CARRD](https://proshipresourcesfnaf.carrd.co/)
 <br>
 [My Art Carrd!](https://bubblegumsweetart.carrd.co/)
