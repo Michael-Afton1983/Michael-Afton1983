@@ -64,6 +64,20 @@ ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. 
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/80fd940b-8eb7-46dc-b9d8-da09a6c34f06" />
 
+
+<h2> ${\textsf{\color{#BE9AED} ⋅⋆ ☆ ⋆ Extremely Cool People ⋆ ☆ ⋆⋅ }}$</h2>
+
+${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wanna be removed or added!!}}$
+
+|❤︎ | ❤︎ | ❤︎ |
+| ------------- | ------------- | ------------- |
+| [@Meeeo0ww](https://github.com/Meeeo0ww)  |  [@greenbeanx3](https://github.com/greenbeanx3)  | [@PrettyCherub](https://github.com/PrettyCherub)  |
+| [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowboy](https://github.com/GothicCowboy)  | [@p0staldud3](https://github.com/p0staldud3)  |
+
+${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
+
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/80fd940b-8eb7-46dc-b9d8-da09a6c34f06" />
+
 <h2> ${\textsf{\color{#ed3b7d} ⋅⋆ ☆ ⋆ Ships ⋆ ☆ ⋆⋅ }}$</h2>
 
 ${\color{#F672C1}William \space Afton \space x \space Michael \space Afton}$
@@ -167,6 +181,8 @@ ${\color{#F672C1}Applejack \space x \space Rarity}$
 
 
 <sub>${\color{#B4B4B4}(still \space updating!!)}$</sub>
+
+
 
 <img width="396" height="500" alt="image" src="https://github.com/user-attachments/assets/3138edb5-ff24-4a2e-bbc7-41cf2a5a95aa" />
 
