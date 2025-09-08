@@ -10,7 +10,7 @@
 <div align="center">
 <h2> ${\textsf{\color{#FFECB6} ⋅⋆ ☆ ⋆ Info ⋆ ☆ ⋆⋅ }}$</h2>
 
-<i>${\color{#3e8535}"Hey \space hey, \space glad \space you \space came \space back \space for \space another \space night!"}$</i>
+<i>${\color{#3e8535}"Hey}$ ${\color{#3e8535}hey,}$ ${\color{#3e8535}glad}$  ${\color{#3e8535}you}$ ${\color{#3e8535}came}$ ${\color{#3e8535}back}$ ${\color{#3e8535}for}$ ${\color{#3e8535}another}$ ${\color{#3e8535}night!"}$</i>
 
 <img width="375" height="500" alt="image" src="https://github.com/user-attachments/assets/ae04673f-fc1e-4650-8e67-7a915cc9bfac" />
 
