@@ -12,7 +12,7 @@
 
 <i>${\color{#3e8535}"Hey}$ ${\color{#3e8535}hey,}$ ${\color{#3e8535}glad}$  ${\color{#3e8535}you}$ ${\color{#3e8535}came}$ ${\color{#3e8535}back}$ ${\color{#3e8535}for}$ ${\color{#3e8535}another}$ ${\color{#3e8535}night!"}$</i>
 
-<img width="375" height="500" alt="image" src="https://github.com/user-attachments/assets/ae04673f-fc1e-4650-8e67-7a915cc9bfac" />
+<img width="375" height="500" alt="image" src="https://files.catbox.moe/4a8v5q.png" />
 
 
 ${\textsf{\color{#7855cf}Hello!!! Please call me Judas, or Michael!}}$
@@ -42,7 +42,7 @@ ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. 
 <br>
 <br>
 
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/13f18b42-041f-49c3-875e-ecf7e6337372" />
+<img width="1000" height="100" alt="image" src="https://files.catbox.moe/muwodu.png" />
 
 
 
@@ -60,7 +60,7 @@ ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. 
 [My Last.FM](https://www.last.fm/user/Michael-Afton)
 
 
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/80fd940b-8eb7-46dc-b9d8-da09a6c34f06" />
+<img width="1000" height="100" alt="image" src="https://files.catbox.moe/muwodu.png" />
 
 
 <h2> ${\textsf{\color{#BE9AED} ⋅⋆ ☆ ⋆ Extremely Cool People ⋆ ☆ ⋆⋅ }}$</h2>
@@ -74,7 +74,7 @@ ${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wa
 
 ${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
 
-<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/80fd940b-8eb7-46dc-b9d8-da09a6c34f06" />
+<img width="1000" height="100" alt="image" src="https://files.catbox.moe/muwodu.png" />
 
 <h2> ${\textsf{\color{#ed3b7d} ⋅⋆ ☆ ⋆ Ships ⋆ ☆ ⋆⋅ }}$</h2>
 
@@ -182,5 +182,5 @@ ${\color{#F672C1}Applejack \space x \space Rarity}$
 
 
 
-<img width="396" height="500" alt="image" src="https://github.com/user-attachments/assets/3138edb5-ff24-4a2e-bbc7-41cf2a5a95aa" />
+<img width="396" height="500" alt="image" src="https://files.catbox.moe/yoirz8.png" />
 
