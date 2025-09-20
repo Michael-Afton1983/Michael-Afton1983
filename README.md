@@ -25,7 +25,7 @@ ${\textsf{\color{#7855cf}My biggest interest. ever. has been FNaF, I kin Michael
 ${\textsf{\color{#7855cf}but i will sometimes block depending on my mood), and I ship him with William.}}$
 <br>
 <br>
-${\textsf{\color{#7855cf}FEEL FREE TO MATCH PONIES W/ ME AT ANYTIME I LOVE DOING THAT SM JLGSSGL}}$
+${\textsf{\color{#7855cf}FEEL FREE TO MATCH PONIES W/ ME AT ANYTIME I LOVE DOING THAT SM JLGSSGL. ALL SHIPS INT :D}}$
 <br>
 <br>
 ${\textsf{\color{#7855cf}My only boundary is for you to not flirt with me, i've had bad experiences in}}$ 
@@ -33,6 +33,10 @@ ${\textsf{\color{#7855cf}My only boundary is for you to not flirt with me, i've 
 ${\textsf{\color{#7855cf}the past with former online friends randomly doing so. just don't.}}$
 <br>
 <br>
+${\textsf{\color{#7855cf}C+H freely!! i only ask for you not to cuddle w/ me if i have DNI in my name !!}}$
+<br>
+<br>
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v4pomd2yvsm0j1e0nxvc4pxkt&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=b03fc0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
