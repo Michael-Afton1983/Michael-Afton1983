@@ -28,9 +28,7 @@ ${\textsf{\color{#7855cf}but i will sometimes block depending on my mood), and I
 ${\textsf{\color{#7855cf}FEEL FREE TO MATCH PONIES W/ ME AT ANYTIME I LOVE DOING THAT SM JLGSSGL. ALL SHIPS INT :D}}$
 <br>
 <br>
-${\textsf{\color{#7855cf}My only boundary is for you to not flirt with me, i've had bad experiences in}}$ 
-<br>
-${\textsf{\color{#7855cf}the past with former online friends randomly doing so. just don't.}}$
+${\textsf{\color{#7855cf}Please do not flirt w/ me, i have really bad experiences with that.}}$ 
 <br>
 <br>
 ${\textsf{\color{#7855cf}C+H freely!! i only ask for you not to cuddle w/ me if i have DNI in my name !!}}$
@@ -74,7 +72,7 @@ ${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wa
 |❤︎ | ❤︎ | ❤︎ | ❤︎ |
 | ------------- | ------------- | ------------- | ------------- |
 | [@MissSkunky](https://github.com/MissSkunky) | [@Meeeo0ww](https://github.com/Meeeo0ww)   |  [@greenbeanx3](https://github.com/greenbeanx3) |[@PrettyCherub](https://github.com/PrettyCherub)  |
-| [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowboy](https://github.com/GothicCowboy) | [@runr4bb](https://github.com/runr4bb)  |
+| [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowboy](https://github.com/GothicCowboy) | [@kkaleidoskull](https://github.com/kkaleidoskull)  |
 | [CCaftoncest](https://github.com/CCaftoncest)|❤︎ | ❤︎| ❤︎ |
 
 ${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
