@@ -1,7 +1,7 @@
 <div align="center">
 
 
-# ${\textsf{\color{#8c0007}🚫17+, Children leave.🚫}}$
+# ${\textsf{\color{#8c0007}🚫-17 IWEC🚫}}$
 </div>
 
 > [!CAUTION]
@@ -73,7 +73,7 @@ ${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wa
 | ------------- | ------------- | ------------- | ------------- |
 | [@MissSkunky](https://github.com/MissSkunky) | [@Meeeo0ww](https://github.com/Meeeo0ww)   |  [@greenbeanx3](https://github.com/greenbeanx3) |[@PrettyCherub](https://github.com/PrettyCherub)  |
 | [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowboy](https://github.com/GothicCowboy) | [@kkaleidoskull](https://github.com/kkaleidoskull)  |
-| [@CCaftoncest](https://github.com/CCaftoncest)|[@THE-BASILICA](https://github.com/THE-BASILICA) | ❤︎| ❤︎ |
+| [@CCaftoncest](https://github.com/CCaftoncest)|[@THE-BASILICA](https://github.com/THE-BASILICA) |[@WalkingTW](https://github.com/WalkingTW)| ❤︎ |
 
 ${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
 
