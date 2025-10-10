@@ -79,6 +79,13 @@ ${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
 
 <img width="1000" height="100" alt="image" src="https://files.catbox.moe/muwodu.png" />
 
+<h2> ${\textsf{\color{#92FF99} ⋅⋆ ☆ ⋆ Art ⋆ ☆ ⋆⋅ }}$</h2>
+<img width="399" height="399" alt="image" src="https://files.catbox.moe/co0tse.webp" />
+
+${\textsf{\color{#ACFFD0}THIS WAS DRAWN BY}}$ [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys) ${\textsf{\color{#ACFFD0}THANK YOU SO MUCH I LOVE IT DEARLY <3<3}}$
+
+<img width="1000" height="100" alt="image" src="https://files.catbox.moe/muwodu.png" />
+
 <h2> ${\textsf{\color{#ed3b7d} ⋅⋆ ☆ ⋆ Ships ⋆ ☆ ⋆⋅ }}$</h2>
 
 ${\color{#F672C1}William \space Afton \space x \space Michael \space Afton}$
