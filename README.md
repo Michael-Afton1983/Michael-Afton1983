@@ -51,6 +51,8 @@ ${\textsf{\color{#7855cf}C+H freely!! i only ask for you not to cuddle w/ me if 
 
 <h2> ${\textsf{\color{#3bccaf} ⋅⋆ ☆ ⋆ Links ⋆ ☆ ⋆⋅ }}$</h2>
 
+[PLEASE CHECK OUT MY FRIENDS KOFI, HE IS SO COOL AND HIS ART'S AMAZING PLEASE CHECK IT OUT](https://ko-fi.com/gothiccowboy)
+<br>
 [SKUNKY'S PROSHIP CARRD](https://proshipresourcesfnaf.carrd.co/)
 <br>
 [My Art Carrd!](https://bubblegumsweetart.carrd.co/)
