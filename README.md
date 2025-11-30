@@ -51,7 +51,7 @@ ${\textsf{\color{#7855cf}C+H freely!! i only ask for you not to cuddle w/ me if 
 
 <h2> ${\textsf{\color{#3bccaf} ⋅⋆ ☆ ⋆ Links ⋆ ☆ ⋆⋅ }}$</h2>
 
-[PLEASE CHECK OUT MY FRIENDS KOFI, HE IS SO COOL AND HIS ART'S AMAZING PLEASE CHECK IT OUT](https://ko-fi.com/gothiccowboy)
+[PLEASE CHECK OUT MY FRIENDS KOFI, SHE IS SO COOL AND HER ART'S AMAZING PLEASE CHECK IT OUT](https://ko-fi.com/gothiccowboy)
 <br>
 [SKUNKY'S PROSHIP CARRD](https://proshipresourcesfnaf.carrd.co/)
 <br>
@@ -74,7 +74,7 @@ ${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wa
 |❤︎ | ❤︎ | ❤︎ | ❤︎ |
 | ------------- | ------------- | ------------- | ------------- |
 | [@MissSkunky](https://github.com/MissSkunky) | [@Meeeo0ww](https://github.com/Meeeo0ww)   |  [@greenbeanx3](https://github.com/greenbeanx3) |[@PrettyCherub](https://github.com/PrettyCherub)  |
-| [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowboy](https://github.com/GothicCowboy) | [@kkaleidoskull](https://github.com/kkaleidoskull)  |
+| [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowgirl](https://github.com/GothicCowgirl) | [@kkaleidoskull](https://github.com/kkaleidoskull)  |
 | [@CCaftoncest](https://github.com/CCaftoncest)|[@THE-BASILICA](https://github.com/THE-BASILICA) |[@WalkingTW](https://github.com/WalkingTW)| [@datariker](https://github.com/datariker) |
 | [@KongStudiosCollective](https://github.com/KongStudiosCollective) | [@RlAMU](https://github.com/RlAMU) | ❤︎ | ❤︎ |
 
