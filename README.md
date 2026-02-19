@@ -5,7 +5,7 @@
 </div>
 
 > [!CAUTION]
-> This doesn't work on mobile for some reason!! idk what went wrong with the spacing
+> wip. reworking stuff <3<3 be patient pleaseplease
  
 <div align="center">
 <h2> ${\textsf{\color{#FFECB6} ⋅⋆ ☆ ⋆ Info ⋆ ☆ ⋆⋅ }}$</h2>
