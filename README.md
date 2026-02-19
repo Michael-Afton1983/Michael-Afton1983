@@ -73,10 +73,9 @@ ${\textsf{\color{#E0CEF8}this is in no particular order!!! let me know if you wa
 
 |❤︎ | ❤︎ | ❤︎ | ❤︎ |
 | ------------- | ------------- | ------------- | ------------- |
-| [@MissSkunky](https://github.com/MissSkunky) | [@Meeeo0ww](https://github.com/Meeeo0ww)   |  [@greenbeanx3](https://github.com/greenbeanx3) |[@PrettyCherub](https://github.com/PrettyCherub)  |
-| [@p0staldud3](https://github.com/p0staldud3) | [@Rainy-chaos-sys](https://github.com/Rainy-chaos-sys)  | [@GothicCowgirl](https://github.com/GothicCowgirl) | [@kkaleidoskull](https://github.com/kkaleidoskull)  |
-| [@CCaftoncest](https://github.com/CCaftoncest)|[@THE-BASILICA](https://github.com/THE-BASILICA) |[@WalkingTW](https://github.com/WalkingTW)| [@datariker](https://github.com/datariker) |
-| [@KongStudiosCollective](https://github.com/KongStudiosCollective) | [@RlAMU](https://github.com/RlAMU) | [RozeRedz](https://github.com/RozeRedz) | ❤︎ |
+| [@MissSkunky](https://github.com/MissSkunky) | [@Meeeo0ww](https://github.com/Meeeo0ww) | [@linux-based](https://github.com/linux-based)  |  [@greenbeanx3](https://github.com/greenbeanx3) |[@PrettyCherub](https://github.com/PrettyCherub)  |
+| [@GothicCowgirl](https://github.com/GothicCowgirl) | [@CCaftoncest](https://github.com/CCaftoncest) | [@RlAMU](https://github.com/RlAMU) |  [RozeRedz](https://github.com/RozeRedz) |
+
 
 ${\textsf{\color{#E0CEF8}FOLLOW THESE PPL THEY ARE COOL AFFFF/nf/hvypos}}$
 
